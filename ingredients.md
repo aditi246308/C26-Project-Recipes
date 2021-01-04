@@ -1,9 +1,9 @@
-FOR 12 CUPCAKES YOU WILL NEED:
+**FOR 12 CUPCAKES YOU WILL NEED:**
 
-150 grams of unsalted butter
-150 grams of self-raising flour
-150 grams of caster sugar
-3 eggs
-2 tablespoons of milk
-1 1/2 teaspoons of vanilla extract
-1 teaspoon of baking powder
+-_150 grams of_ **_unsalted butter_**
+-_150 grams of_ **_self-raising flour_**
+-_150 grams of_ **_caster sugar_**
+-_3_ **_eggs_**
+-_2 tablespoons of_ **_milk_**
+-_1 1/2 teaspoons of_ **_vanilla extract_**
+-_1 teaspoon of baking_ **_powder_**
